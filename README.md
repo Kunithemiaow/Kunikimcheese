@@ -25,7 +25,7 @@ WAIT! before you go anywhere pls read this :3↓
   I usually online in safe sever near the party island sometime on MCYT fandom. IF! You see me near the beach that mean I'm AFK or playing with friends!- <br>
     <br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) so dont expect me to reply sorryy :,( <br>
-  Avoid C+HING when im w my friends (if you see him as a Lomedy skin or matching duo skin) please and ty! C+H is very suggested if im alone!! :D!
+   You C+HING when im w my hommie (if you see him as a Lomedy/Flamefrags skin or matching duo skin) please and ty! We don't mind!
  <br> 
 </details>
 
